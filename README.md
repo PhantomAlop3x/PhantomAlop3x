@@ -10,4 +10,4 @@ I taught myself UI (and to an extend UX) design originally starting in PowerPoin
 
 On the complete flip-side, I have also gotten really into game development. For now I am working on Roblox, but I am learning Game Development in formal education to take it further.
 
-<sub><sup>Did you know there are 14 types **true** foxes, these are part of the vulpes class!</sup></sub>
+<sub><sup>Did you know there are 12 types **true** foxes, these are part of the vulpes class!</sup></sub>
