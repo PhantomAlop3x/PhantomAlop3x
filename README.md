@@ -1,7 +1,7 @@
 # Hi there
 You just stumbled upon my GitHub profile, likely by pure chance. I suppose I have to introduce myself.
 
-I am PhantomAlop3x, but you can just call me Phantom (⁠◍⁠•⁠ᴗ⁠•⁠◍⁠). Before we start do you want a fun fact, well the Alopex part of my name derives from the genus type of an arctic fox... the more you know.
+I am PhantomAlop3x, but you can just call me Phantom (⁠◍⁠•⁠ᴗ⁠•⁠◍⁠). Before we start do you want a fun fact, well the Alopex part of my name derives from an older scientific name for an arctic fox  the more you know.
 
 <sub><sup>Warning! This page is pure 24K fox adoration.</sup></sub>
 
